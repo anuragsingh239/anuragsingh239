@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **React**
 
-- 💬 Ask me about **Web development**
+- 💬 Ask me about **Aws Cloud **
 
 - ⚡ Fun fact **I listen music 12 hour daily**
 
