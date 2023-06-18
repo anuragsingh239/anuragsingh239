@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Aws Cloud **
 
-- ⚡ Fun fact **I listen music 12 hour daily**
+- ⚡ Fun fact **I  watch 1 or 2 movies daily**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
